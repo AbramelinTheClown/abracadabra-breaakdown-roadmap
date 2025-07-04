@@ -1,4 +1,7 @@
-# abracadabra-breaakdown-roadmap
+#    Cole Medin we Will be the next Larry and Sergey 
+
+
+
 
 💸 The Free Money Glitch – High-Level Introduction
 The “Free Money Glitch” is not a bug in the code — it's a feature of the new financial architecture being quietly formed beneath the surface of meme coin chaos and public market distractions. It’s the emergent result of smart contract referral systems, recursive wallet design, and overlooked compounding mechanisms hidden within under-the-radar.   I have found where all the hedge funds are pooling there money behind the scenes... And I can prove it.. 
